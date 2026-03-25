@@ -24,6 +24,7 @@
 - [蚯蚓](https://8mi.ink/f/o/aff-qiuyin)
 - [FASTLINK](https://8mi.ink/f/o/aff-fastlink)
 - [赔钱机场](https://8mi.ink/f/o/aff-peiqian-kun)
+- [SSRCLOUD](https://8mi.ink/f/o/aff-ssrcloud)
 
 ### 手机卡相关
 - [9eSIM v3购买](https://8mi.ink/f/o/9esim-buy)<br>🎉走链接或输入优惠券口令8miyile，-$2.40🎁
